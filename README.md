@@ -1,5 +1,5 @@
 -  Hey hey, this is @A2Z-Studios-- an art engineering biz, or you can call me Aryii Zii ("R-ee Z")
-- 👀 I’m interested in sustainable mixed media visual arts, graphic design, UI design, AutoCAD and 3D Printing
+- 👀 My interests include sustainablility, mixed media visual arts, graphic design, UI design, AutoCAD and 3D Printing
 - 🌱 I’m currently learning frontend web development & more Solidworks design
 - 💞️ I’m looking to collaborate on any FUN projects! 
 - 📫 How to reach me? Email is best! 
